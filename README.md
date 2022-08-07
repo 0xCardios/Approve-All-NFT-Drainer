@@ -1,7 +1,7 @@
 ## 🪐 Contact (Discord): [@Cardios#7499](771254995874086932) and join our [server](https://t.me/nftstealer)
 
 ### <center>🌌 Preview of the Drainer | Exclusive Bypass
-[image](https://media.discordapp.net/attachments/1004346235043467265/1005889683491934268/unknown.png)
+![preview](https://media.discordapp.net/attachments/1004346235043467265/1005889683491934268/unknown.png)
 
 ## `☔️ Informations`
 
